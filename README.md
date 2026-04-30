@@ -4,4 +4,4 @@
 Vidéo 3: https://youtube.com/shorts/cU9YPtWWP6Q 
 
 ## Semaine 4
-vidéo 6: https://youtu.be/oIOt__9JxKM 
+vidéo 5: https://youtu.be/oIOt__9JxKM 
